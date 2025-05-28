@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on open-source infrastructure projects, cloud-native tools, and scalable web applications.
 
-📫 How to reach me: vinayzunja09@Gmail.com (or link to your LinkedIn/Twitter)
+📫 How to reach me: vinayzunja09@Gmail.com (LinkedIn:https://www.linkedin.com/in/vinay-zunja/)
 
 😄 Pronouns: He/Him
 
